@@ -1,6 +1,6 @@
 # Resist: Break the Scroll — Support
 
-Questions, bugs, or feedback? Email **your@email.com**
+Questions, bugs, or feedback? Email j1persicketti@gmail.com
 
 ## Common questions
 
